@@ -1,0 +1,1 @@
+etiquetas feitas para lojas
